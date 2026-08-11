@@ -1,4 +1,4 @@
-###👋 Hi, I'm Shpaaatel!
+### 👋 Hi, I'm Shpaaatel!
 👩🏻‍💻 Startup entrepreneur, vibecoder
 
 
